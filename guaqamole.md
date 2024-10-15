@@ -7,4 +7,3 @@
 * Salt (0.79 EUR)
 
 ## Instructions
-Bla

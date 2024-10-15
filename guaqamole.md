@@ -2,8 +2,8 @@
 
 ## Ingredients
 
-* Avocado
-* Lime
-* Salt
+* Avocado (3 EUR)
+* Lime (1.25 EUR)
+* Salt (0.79 EUR)
 
 ## Instructions
